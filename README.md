@@ -1,2 +1,3 @@
 # my-first-rep
-qwertyuiopasdfghjkklzxcvbnm
+second!@
+erty
